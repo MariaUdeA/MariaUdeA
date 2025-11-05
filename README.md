@@ -4,7 +4,7 @@
 
 - 🌱 I'm currently learning **a broad range of tools in INSA CVL**
 
-- 📫 How to reach me **mariadelmararbelaezs@gmail.com**
+- 📫 How to reach me **maria_del_mar.arbelaez@insa-cvl.fr**
 
 - 📄 Know about my experiences **[https://drive.google.com/file/d/1bro1nDqvXr96co6yuFqrzyBJOBxAzujF/view?usp=sharing](https://drive.google.com/file/d/1bro1nDqvXr96co6yuFqrzyBJOBxAzujF/view?usp=sharing)**
 
